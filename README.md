@@ -1,1 +1,1 @@
-# ta-resant
+# süper I/Q
